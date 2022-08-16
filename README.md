@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Klackters, that's my nickname, you can call me Breno xD. I'm from Brazil, SP, I love to learn with more experienced people
+- 👀 I’m interested in technology at areas no one look at, like quantum computing in aerospace engineering
+- 🌱 I’m currently learning System Development and analysis at FATEC - Americana, and I also learn Biomedicine at another university
+- 💞️ I’m looking to collaborate on any project that I can help and get experience from, knowledge is always welcome :D
+- 📫 You can reach me with whatever non-invasive means you can find :)
